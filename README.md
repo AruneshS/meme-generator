@@ -13,7 +13,7 @@
 
 # The One-Stop Solution
 
-for all the Creative memers has arrived!
+for all the creative memers has arrived!
 
 ---
 
@@ -39,21 +39,21 @@ for all the Creative memers has arrived!
 
 #### We also help you create your own too!
 
-So now you can pore all thats in your head into a amazing meme instead of just
-sharing a old school one.
+So now you can pour all that is in your head into an amazing meme instead of just
+sharing an old school one.
 
 ### Why us?
 
 ![](https://res.cloudinary.com/dcykxiua2/image/upload/v1600027368/shotsnapp-1600027241.237_k3gfwq.png)
 
-> Isnt that right? Memes have become one of the major ways to represent feelings of a individual or a group.
+> Isn't that right? Memes have become one of the major ways to represent feelings of an individual or a group.
 
 ![](https://res.cloudinary.com/dcykxiua2/image/upload/v1600027367/shotsnapp-1600027286.135_suhugu.png)
 
-> Tired of Sharing and viewing the same memes? We help you build your own!
+> Tired of sharing and viewing the same memes? We help you build your own!
 
-## Atlast all we wanna say is:
+## At last all we wanna say is:
 
 ![](https://res.cloudinary.com/dcykxiua2/image/upload/v1600026394/shotsnapp-1600025815.209_pnrtt8.png)
 
-> Welcome Home memers!
+> Welcome Home, memers!
